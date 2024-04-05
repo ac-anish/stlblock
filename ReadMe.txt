@@ -1,0 +1,1 @@
+It is a collection of entries curated by "https://switchedtolinux.com/". Now Its not on the site anymore.
